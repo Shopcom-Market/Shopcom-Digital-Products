@@ -2,6 +2,9 @@
 
 Direct download links :
 
+MSC Nastran 2025.2 download link : (Product Price : 41,323 $) (Size : 3.00 GB)
+https://www.shopcom.tn/product/msc-nastran-2025-2/download
+
 MasterClass – Garry Kasparov Teaches Chess download link : (Product Price : 59 $) (Size : 6.74 GB)
 https://www.shopcom.tn/product/masterclass-garry-kasparov-teaches-chess/download
 
@@ -164,6 +167,9 @@ https://www.shopcom.tn/product/solidworks-2023-sp5-0-premium/download
 -----------------------------------------------------------------------
 
 Torrent download links :
+
+MSC Nastran 2025.2 torrent download download link : (Product Price : 41,323 $) (Size : 3.00 GB)
+https://www.shopcom.tn/product/msc-nastran-2025-2/torrent-download
 
 MasterClass – Garry Kasparov Teaches Chess torrent download download link : (Product Price : 59 $) (Size : 6.74 GB)
 https://www.shopcom.tn/product/masterclass-garry-kasparov-teaches-chess/torrent-download
