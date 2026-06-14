@@ -2,6 +2,9 @@
 
 Direct download links :
 
+Counter Strike - Global Offensive download link : (Product Price : Free) (Size : 11.0 GB)
+https://www.shopcom.tn/product/counter-strike-global-offensive/download
+
 MSC Nastran 2025.2 download link : (Product Price : 41,323 $) (Size : 3.00 GB)
 https://www.shopcom.tn/product/msc-nastran-2025-2/download
 
@@ -168,10 +171,13 @@ https://www.shopcom.tn/product/solidworks-2023-sp5-0-premium/download
 
 Torrent download links :
 
-MSC Nastran 2025.2 torrent download download link : (Product Price : 41,323 $) (Size : 3.00 GB)
+Counter Strike - Global Offensive torrent download link : (Product Price : Free) (Size : 11.0 GB)
+https://www.shopcom.tn/product/counter-strike-global-offensive/torrent-download
+
+MSC Nastran 2025.2 torrent download link : (Product Price : 41,323 $) (Size : 3.00 GB)
 https://www.shopcom.tn/product/msc-nastran-2025-2/torrent-download
 
-MasterClass – Garry Kasparov Teaches Chess torrent download download link : (Product Price : 59 $) (Size : 6.74 GB)
+MasterClass – Garry Kasparov Teaches Chess torrent download link : (Product Price : 59 $) (Size : 6.74 GB)
 https://www.shopcom.tn/product/masterclass-garry-kasparov-teaches-chess/torrent-download
 
 1492 Conquest of Paradise – Vangelis torrent download link : (Product Price : 13 $) (Size : 89.9 MB)
