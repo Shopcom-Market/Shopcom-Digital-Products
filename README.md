@@ -2,6 +2,9 @@
 
 Direct download links :
 
+Mécanique du point - Dunod download link : (Product Price : 26 $) (Size : 4.02 MB)
+https://www.shopcom.tn/product/mecanique-du-point-dunod/download
+
 Counter Strike - Global Offensive download link : (Product Price : Free) (Size : 11.0 GB)
 https://www.shopcom.tn/product/counter-strike-global-offensive/download
 
@@ -170,6 +173,9 @@ https://www.shopcom.tn/product/solidworks-2023-sp5-0-premium/download
 -----------------------------------------------------------------------
 
 Torrent download links :
+
+Mécanique du point - Dunod torrent download link : (Product Price : 26 $) (Size : 4.02 MB)
+https://www.shopcom.tn/product/mecanique-du-point-dunod/torrent-download
 
 Counter Strike - Global Offensive torrent download link : (Product Price : Free) (Size : 11.0 GB)
 https://www.shopcom.tn/product/counter-strike-global-offensive/torrent-download
