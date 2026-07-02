@@ -2,6 +2,9 @@
 
 Direct download links :
 
+Adobe Substance 3D Painter V12.1.0 download link : (Product Price : 203 $) (Size : 3.19 GB)
+https://www.shopcom.tn/product/adobe-substance-3d-painter-v12-1-0/download
+
 Mécanique du point - Dunod download link : (Product Price : 26 $) (Size : 4.02 MB)
 https://www.shopcom.tn/product/mecanique-du-point-dunod/download
 
@@ -173,6 +176,9 @@ https://www.shopcom.tn/product/solidworks-2023-sp5-0-premium/download
 -----------------------------------------------------------------------
 
 Torrent download links :
+
+Adobe Substance 3D Painter V12.1.0 torrent download link : (Product Price : 203 $) (Size : 3.19 GB)
+https://www.shopcom.tn/product/adobe-substance-3d-painter-v12-1-0/torrent-download
 
 Mécanique du point - Dunod torrent download link : (Product Price : 26 $) (Size : 4.02 MB)
 https://www.shopcom.tn/product/mecanique-du-point-dunod/torrent-download
