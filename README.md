@@ -2,6 +2,9 @@
 
 Direct download links :
 
+AutoCAD LT 2027 download link : (Product Price : 1,258 $) (Size : 2.73 GB)
+https://www.shopcom.tn/product/autocad-lt-2027/download
+
 Adobe Substance 3D Painter V12.1.0 download link : (Product Price : 203 $) (Size : 3.19 GB)
 https://www.shopcom.tn/product/adobe-substance-3d-painter-v12-1-0/download
 
@@ -176,6 +179,9 @@ https://www.shopcom.tn/product/solidworks-2023-sp5-0-premium/download
 -----------------------------------------------------------------------
 
 Torrent download links :
+
+AutoCAD LT 2027 torrent download link : (Product Price : 1,258 $) (Size : 2.73 GB)
+https://www.shopcom.tn/product/autocad-lt-2027/torrent-download
 
 Adobe Substance 3D Painter V12.1.0 torrent download link : (Product Price : 203 $) (Size : 3.19 GB)
 https://www.shopcom.tn/product/adobe-substance-3d-painter-v12-1-0/torrent-download
