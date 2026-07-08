@@ -2,6 +2,9 @@
 
 Direct download links :
 
+Quran Video Complete download link : (Product Price : 397 $) (Size : 10.2 GB) 
+https://www.shopcom.tn/product/quran-video-complete/download
+
 AutoCAD LT 2027 download link : (Product Price : 1,258 $) (Size : 2.73 GB)
 https://www.shopcom.tn/product/autocad-lt-2027/download
 
@@ -179,6 +182,9 @@ https://www.shopcom.tn/product/solidworks-2023-sp5-0-premium/download
 -----------------------------------------------------------------------
 
 Torrent download links :
+
+Quran Video Complete torrent download link : (Product Price : 397 $) (Size : 10.2 GB) 
+https://www.shopcom.tn/product/quran-video-complete/torrent-download
 
 AutoCAD LT 2027 torrent download link : (Product Price : 1,258 $) (Size : 2.73 GB)
 https://www.shopcom.tn/product/autocad-lt-2027/torrent-download
