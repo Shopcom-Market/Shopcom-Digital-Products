@@ -2,6 +2,9 @@
 
 Direct download links :
 
+Hicaz Dolap - Laço Tayfa download link : (Product Price : 12 $) (Size : 105 MB)
+https://www.shopcom.tn/product/hicaz-dolap-laco-tayfa/download
+
 Quran Video Complete download link : (Product Price : 397 $) (Size : 10.2 GB) 
 https://www.shopcom.tn/product/quran-video-complete/download
 
@@ -182,6 +185,9 @@ https://www.shopcom.tn/product/solidworks-2023-sp5-0-premium/download
 -----------------------------------------------------------------------
 
 Torrent download links :
+
+Hicaz Dolap - Laço Tayfa torrent download link : (Product Price : 12 $) (Size : 105 MB)
+https://www.shopcom.tn/product/hicaz-dolap-laco-tayfa/torrent-download
 
 Quran Video Complete torrent download link : (Product Price : 397 $) (Size : 10.2 GB) 
 https://www.shopcom.tn/product/quran-video-complete/torrent-download
