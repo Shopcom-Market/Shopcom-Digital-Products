@@ -2,6 +2,9 @@
 
 Direct download links :
 
+Ahi - Taksim Trio download link : (Product Price : 11 $) (Size : 211 MB)
+https://www.shopcom.tn/product/ahi-taksim-trio/download
+
 Hicaz Dolap - Laço Tayfa download link : (Product Price : 12 $) (Size : 105 MB)
 https://www.shopcom.tn/product/hicaz-dolap-laco-tayfa/download
 
@@ -185,6 +188,9 @@ https://www.shopcom.tn/product/solidworks-2023-sp5-0-premium/download
 -----------------------------------------------------------------------
 
 Torrent download links :
+
+Ahi - Taksim Trio torrent download link : (Product Price : 11 $) (Size : 211 MB)
+https://www.shopcom.tn/product/ahi-taksim-trio/torrent-download
 
 Hicaz Dolap - Laço Tayfa torrent download link : (Product Price : 12 $) (Size : 105 MB)
 https://www.shopcom.tn/product/hicaz-dolap-laco-tayfa/torrent-download
